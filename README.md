@@ -1,0 +1,1 @@
+# splashout-email-assets
